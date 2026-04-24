@@ -2,7 +2,7 @@
 
 ### GTM Leader · Strategic Ops · AI Agent Architect
 
-The most exciting problems sit where growth, transformation, and ambiguity collide—that is where I operate best. I bridge the gap between commercial strategy and AI-driven execution.
+The most exciting problems sit where growth, transformation, and ambiguity collide - that is where I operate best. I bridge the gap between commercial strategy and AI-driven execution.
 
 ---
 
